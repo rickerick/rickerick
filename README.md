@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @rickerick
+- 👋 Hi, I’m @Muhammad Naufal S A
 - 👀 I’m interested in Gaming
 - 🌱 I’m currently learning informatic
 - 💞️ I’m looking to collaborate on game develover / community
